@@ -3,9 +3,9 @@
 <details open><summary><b>Show / Hide Ads</b></summary>
 
 # [Info Terbaik Ini Info Demo Pg Slot Server Indonesia](https://atom.io/packages/demo-pg-slot)
-## :8ball: klik untuk [Dapatkan Akun Gacor](https://agentotoplay.net/promo/) :green_heart: <<< 
-## :o: klik untuk [Mulai Deposit Sekarang](https://agentotoplay.net/) :cake: <<< 
-## :top: klik untuk [Daftar Sekarang](https://agentotoplay.net/) :star2: <<< 
+## :8ball: klik untuk [Dapatkan Akun Gacor](https://golinkurl.github.io/promo/) :green_heart: <<< 
+## :o: klik untuk [Mulai Deposit Sekarang](https://golinkurl.github.io/) :cake: <<< 
+## :top: klik untuk [Daftar Sekarang](https://golinkurl.github.io/) :star2: <<< 
 
 ## Informasi Situs /Server Kami : 
 
